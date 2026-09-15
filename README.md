@@ -6,7 +6,8 @@
 <div align="center"> <img width="2048" height="1152" alt="tumblr_f890a5630a2a81b1a1d3dbb051624514_72f59be8_2048" src="https://github.com/user-attachments/assets/4321eea0-5276-469b-b1e0-d8029b37594a" />
 <p align="center"> <sub> ${\textsf{\color{#655780} poe yume , dbls dni}}$ </sub>
   
-<p align="center"> ${\textsf{\color{#8170a3} " placeholder text hih " }}$
+<p align="center"> ${\textsf{\color{#8170a3} " living a life with the bonds of close relationships with people, " }}$
+<p align="center"> ${\textsf{\color{#241e28} " has only ever been suffering for me. " }}$
 <div align="center">
 
  [atabook](https://malharejayexe.atabook.org/) ⪩≽•ܫ•≼⪨ [straw](https://yourlocaljayjay.straw.page/)
