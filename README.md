@@ -12,4 +12,4 @@
 
  [atabook](https://malharejayexe.atabook.org/) ⪩≽•ܫ•≼⪨ [straw](https://yourlocaljayjay.straw.page/)
 <div align="center"> <img width="1470" height="288" alt="tumblr_f323c44f9c0c6e2e9c6e8c74e8763cbc_37b4bddd_2048" src="https://github.com/user-attachments/assets/b06f99ca-0fe9-49bf-a63a-4d8adc57541e" />
-<p align="center"> <sub> ${\textsf{\color{#655780} graphs made by @vadorith on tumblr}}$ </sub>
+<p align="center"> <sub> ${\textsf{\color{#655780} graphs + pfp made by @vadorith on tumblr}}$ </sub>
